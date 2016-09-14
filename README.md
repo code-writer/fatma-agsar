@@ -1,0 +1,2 @@
+# fatma-agsar
+I am a committed and forward-thinking Electrical and Electronics Engineering trainee with hand-on experience performing quality troubleshooting, electronics system design and development. I have a sound understanding of developing programs, and have developed programs for both Java and Android. I have excellent planning skills to deliver assignments within set timeframes and to a higher quality standard. I wish to further my education and understanding in electronic systems such as smart home technology and artificial intelligence.
